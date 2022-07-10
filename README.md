@@ -8,8 +8,6 @@
 - 🤔 I’m looking for help with ... smart contract
 - 💬 Ask me about ... Anything the Kingdom come Agenda
 - 📫 How to reach me: ... [Twitter](https://twitter.com/baidoo_nana)
-- 😄 Pronouns: ... Nana/Bro
-- ⚡ Fun fact: ... Know Jesus Chris
 
 
 **Languages and Tools:**  
